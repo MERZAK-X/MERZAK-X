@@ -1,6 +1,6 @@
 ### Hallo
 
-> If you want to private message me, leave me a message in my [LinkedIn](https://www.linkedin.com/in/merzak-mohamed/) profile prefebably, or in my [email](mailto:merzak_mohamed@emsi-edu.ma) - :shipit:
+> If you want to private message me, leave me a message in my [LinkedIn](https://www.linkedin.com/in/merzak-mohamed/) profile preferably, or in my [email](mailto:merzak_mohamed@emsi-edu.ma) - :shipit:
 
 
 <!--
